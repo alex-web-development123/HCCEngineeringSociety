@@ -19,4 +19,4 @@ Right now we we need help with the following:
 
 Thank you to HCC's Brandon Campus Student Government Association for sponsoring our club!!! 
 
-(Updated: 10/20/2020)
+(Updated: 10/21/2020)
